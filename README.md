@@ -52,4 +52,13 @@ csan casncan
 bsbc bcb cbx cx z
 nbnsxbncbnb
  cnbdsn bsdnb n bsdn
+ e
+ w
+ e
+ 3
+ f
+ 4
+ t
+ t4ty
+ 
   s s snd
